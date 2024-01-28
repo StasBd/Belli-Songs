@@ -1,3 +1,4 @@
 Update coming soon!
 Preparing tools for it
-Training here
+Training here, nd working here
+
